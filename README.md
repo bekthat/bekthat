@@ -1,5 +1,3 @@
-<img src="https://get.wallhere.com/photo/while-True-learn-video-games-Video-Game-Art-1549071.jpg" align="left" height="" width="800" />  
-
 
 ## **Hey 👋, I'm Begzat Kamen!**  
   
